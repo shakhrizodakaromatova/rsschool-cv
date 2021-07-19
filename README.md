@@ -1,1 +1,0 @@
-https://shakhrizodakaromatova.github.io/rsschool-cv/cv
